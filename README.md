@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Noblezim711
 - 👀 I’m interested in ... Making games, programs, missions, and mods.
-- 🌱 I’m currently learning ... About lots of subjects.
+- 🌱 I’m currently learning ... Lots of subjects.
 - 💞️ I’m looking to collaborate on ... Game projects.
 - 📫 How to reach me ... Discord @ Noblezim711#5012
 
